@@ -11,4 +11,3 @@ Berikut daftar Volunter yang diterima:
 
 * Bagus, [oo.or.id](https://oo.or.id).
 
-* Wazows, [wzws.id](https://youtube.com)
